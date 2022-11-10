@@ -1,0 +1,1 @@
+# Harigana-news.com
